@@ -1,1 +1,1 @@
-# trex-codigo-completo-para-aluno
+# trex só que mais fácil
